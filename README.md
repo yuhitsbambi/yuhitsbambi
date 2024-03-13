@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Stacy Ayora!
+- 👀 I’m interested in everything IT
+- 🌱 I’m currently learning ..frontend software development
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me @ayorastacy@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love cooking and singing
+- I LOVE JESUS
